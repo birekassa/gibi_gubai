@@ -1,1 +1,0 @@
-# gibi_gubai
